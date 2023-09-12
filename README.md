@@ -1,4 +1,7 @@
 - 👋 Hi, I’m @RIFFDIDDYS
+- i HAVE MADE SOMETHING SPESAIL AND i CAN JUST NEED TO KNOW - DO i HAVE A joB.
+
+  
 - I have no idea on what I am doing here, but I was just looking to do the free patent thing at Patent dot Gov for one one the thousands of ideas I have - I just figured if I could do it my myself - I would give it a try on something I don care about like my Couch Surfer - it like one of those thing Brook Sheilds fell of off, but a whole lot safer.  Their balacnce board is dangerous - mine is like riding a bucking horse with all of the fun of falling back int the couch while watch TV.
 - 👀 I’m interested in ...
 - Doing what every I can to get the newest version that is different from the last version fixing all of the mistakes of the last 25 versions of the TMMMIDGT.
