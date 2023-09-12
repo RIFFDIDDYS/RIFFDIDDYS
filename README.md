@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning ... how to make the best TMMMIDGT I have ever made.  I have one I am building right know and I cant wait to hear if it sounds as good as I think. But in my head earlier - I was telling my Dad how I was gonna make the next one and I can not wait to hear what that sounds like.  But the new design can attach I think to anything.  Well things people have around the house.
 
-- 💞️ I’m looking to collaborate on ... On what I have made with someone who with some who can see the vision I see with what I have made with one of these next to every hospital bed have a francise deal with people who want to make these and sell out them of exspsao;y eqipped vans  at fairs, concerts, and motorsports venues.
+- 💞️ I’m looking to collaborate on ... On what I have made with someone who with some who can see the vision I see with what I have made with one of these next to every hospital bed have a francise deal with people who want to make these and sell out them of exspsao;yeqipped vans  at fairs, concerts, and motorsports venues.
 
 - 📫 How to reach me ... Please let me learn how to code first so I can fill in some more of the above spaces.
  
