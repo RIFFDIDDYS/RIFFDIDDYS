@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... Finding any HELP I could get.
 - 🌱 I’m currently learning ... How to code.
 - 💞️ I’m looking to collaborate on ... On what I have made.
-- 📫 How to reach me ... Let me learn how to code fisrt.
+- 📫 How to reach me ... Let me learn how to code first.
