@@ -8,11 +8,7 @@
 
 - 🌱 I’m currently learning ... how to make the best TMMMIDGT I have ever made.  I have one I am building right know and I cant wait to hear if it sounds as good as I think. But in my head earlier - I was telling my Dad how I was gonna make the next one and I can not wait to hear what that sounds like.  But the new design can attach I think to anything.  Well things people have around the house.
 
-- 💞️ I’m looking to collaborate on ... On what I have made with someone who with some who can see the vision I see with what I have made with one of these next to every hospital bed have a francise deal with people who want to make these and sell them at fairs, concerts, and motorsports venues.
+- 💞️ I’m looking to collaborate on ... On what I have made with someone who with some who can see the vision I see with what I have made with one of these next to every hospital bed have a francise deal with people who want to make these and sell out them of exspsao;y eqipped vans  at fairs, concerts, and motorsports venues.
 
 - 📫 How to reach me ... Please let me learn how to code first so I can fill in some more of the above spaces.
  
-- I have no idea on what I am doing here, but I was just looking to do the free patent thing at Patent dot Gov for one one the thousands of ideas I have - I just figured if I could do it my myself - I would give it a try on something I don care about like my Couch Surfer - it like one of those thing Brook Sheilds fell of off, but a whole lot safer.  Their balacnce board is dangerous - mine is like riding a bucking horse with all of the fun of falling back int the couch while watch TV.
-- 👀 I’m interested in ...
-- Doing what every I can to get the newest version that is different from the last version fixing all of the mistakes of the last 25 versions of the TMMMIDGT.
-Sorry I have to go - My cat is telling me it is time for bed. 
