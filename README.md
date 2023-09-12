@@ -7,4 +7,4 @@
 - 🌱 I’m currently learning ... how to make the best TMMMIDGT I have ever made.  I have one I am building right know and I cant wait to hear if it sounds as good as I think. But in my head earlier - I was telling my Dad how I was gonna make the next one and I can not wait to hear what that sounds like.  But the new design can attach I think to anything.  Well things people have around the house.
 - 💞️ I’m looking to collaborate on ... On what I have made.
 - 📫 How to reach me ... Please let me learn how to code first so I can fill in some more of the above spaces.
-Would YOU like to know more about the instrument tonight?  YES? NO?  
+ 
