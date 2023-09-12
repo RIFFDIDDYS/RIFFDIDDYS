@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RIFFDIDDYS - I feel like I have made something special and I have no idea on what to do with it.
-- 👀 I’m interested in ... Finding any HELP I could get.
+- 👀 I’m interested in ... Finding someone who knows someone that about music.
 - 🌱 I’m currently learning ... How to code.
 - 💞️ I’m looking to collaborate on ... On what I have made.
 - 📫 How to reach me ... Please let me learn how to code first so I can fill in somemore of the above spaces.
