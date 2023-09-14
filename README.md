@@ -26,3 +26,4 @@ git push -u origin main
 git remote add origin https://github.com/RIFFDIDDYS/GREETING.git
 git branch -M main
 git push -u origin main
+@octocat :+1: This PR looks great - it's ready to merge! :shipit:
